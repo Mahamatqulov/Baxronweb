@@ -8,4 +8,4 @@
 
 🔗 **https://www.baxromweb.uz/**
 
-🔗 **@Baxromweb**
+🔗 **https://t.me/Baxromweb**
